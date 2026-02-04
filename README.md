@@ -1,0 +1,1 @@
+Galería de posters interactiva
